@@ -1,4 +1,4 @@
-- Hi, I’m Kineticologic 👋
+- Hi, I’m Furnace 👋
 - I’m interested in roblox scripting (lua code)
-- 📱📫 How to contact me; Roblox: Kinetic, @Kineticologic | YouTube: Kinetic, @Kineticologic 📫📱
-- I go by He/Him. You may call me Kinetic, Kineticologic, or Sar if you dont want to type a long name.
+- 📱📫 How to contact me; Roblox: @Furnace802 | YouTube: @Furnace802 📫📱
+- I go by He/Him. You may call me Furnace, Furnace802, or Sar if you dont want to type a long name.
